@@ -1,2 +1,2 @@
 # Scriptbucin
-Punya orang
+Gabut
