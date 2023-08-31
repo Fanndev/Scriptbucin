@@ -1,2 +1,2 @@
 # Scriptbucin
-TEs
+Hasil Gabut 
