@@ -1,2 +1,1 @@
-# Scriptbucin
-Hasil Gabut 
+
